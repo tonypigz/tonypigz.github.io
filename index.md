@@ -1,2 +1,2 @@
-##Contact me by email##
+Contact me by email:  
 tp@tpnet.ca
